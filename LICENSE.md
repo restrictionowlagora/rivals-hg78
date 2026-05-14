@@ -1,4 +1,4 @@
-
+Download new Script for rivals for rivals, the best script available, featuring auto-sell and one-hit kill. This powerful tool ensures you have the upper hand in every match,
 
 
 
